@@ -1,0 +1,2 @@
+# nnostradamus.github.io
+!
